@@ -1,5 +1,9 @@
 # Project---Case-Study-w-Personal-Professional-Code-Ethics-Evaluation.
 
+Due Nov 4, 11pm IMPORTANT: you should post right away when you are done AND email everyone in class your link to your Youtube URL. Do not wait for Nov. 4 to do this.....if you went to a meetup on Sept.. 7th then report right afterwards!!!!!!!
+
+Points 65
+
 Requirements
 
 your discussion in your own words must be a minimum of 500 words (THIS IS NOT INCLUDING THE CASE STUDY ITSELF OR ANY OTHER REFERENCED ITEMS) -- THIS must be 100% original writing by you.
