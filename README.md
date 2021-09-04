@@ -1,8 +1,12 @@
 # Project---Case-Study-w-Personal-Professional-Code-Ethics-Evaluation.
 
-Due Nov 4, 11pm IMPORTANT: you should post right away when you are done AND email everyone in class your link to your Youtube URL. Do not wait for Nov. 4 to do this.....if you went to a meetup on Sept.. 7th then report right afterwards!!!!!!!
+NOTE: THIS IS a GROUP ASSIGNMENT using the group you were assigned to in class (everyone in the same group will be assigned the same score) --if there are any conflicts you must resolve them prior to 30 days before the due date if you want me to be involved in resolving your issues. IF I am contacted before the 30 days I will then make the deicision to split you up into self-choosen sub-teams or to do the project by yourself.
 
-Points 65
+Start: Oct. 15
+
+Due: Nov 11, 11pm
+
+Points 50
 
 Requirements
 
